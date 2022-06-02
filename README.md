@@ -1,1 +1,1 @@
-Vous pourrez retrouver tous les Rapports + guides directements sur le site
+Vous pourrez retrouver tous les Rapports + guides directement sur le site
